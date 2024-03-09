@@ -1,1 +1,1 @@
-Add all your images of memes with sentimetns here
+Add all your images of memes
